@@ -40,4 +40,6 @@ Choose the correct answer
 3) 3
 4) 4
 
+2
+
 #### From Kenn: Don't over think it
